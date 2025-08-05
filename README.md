@@ -1,2 +1,2 @@
 # SOARTECHS-PRO
-Solar Installationj
+Solar Installation
